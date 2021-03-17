@@ -1,1 +1,2 @@
-# 6701194103-assesment1pwb
+Nama : I Gusti Bagus Bagaskara Kertayasa
+NIM : 6701194103
